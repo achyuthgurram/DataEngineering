@@ -1,0 +1,1 @@
+I received a warning when I sent this email from my USB address, so I am resending it from my personal email. Please disregard this message if you have already received it.
